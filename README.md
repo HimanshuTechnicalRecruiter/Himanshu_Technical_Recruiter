@@ -24,7 +24,7 @@ Every message I send is researched and relevant.
 
 ### 📩 Let's Talk
 - 💼 LinkedIn: https://www.linkedin.com/in/himanshu-patel-026534247/
-- 📧 Email: hp247599"gmail.com
+- 📧 Email: hp247599@gmail.com
 
 
 > ⭐ Not actively looking? No problem.
